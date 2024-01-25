@@ -1,1 +1,1 @@
-niga
+es busu pro
